@@ -17,6 +17,9 @@ This was the first day of my college life form my side. I was very excited, it s
  ### DR. Arvind Dhingra(Director-STEP & Incharge TAC)
  After the scholarship session DR. Arvind sir came on stage to tell us some things about personality development and how it helps in our day to day life. he also enlighted us about all the socities and clubs present in the college for students , for their studies and for their commnication ,talking and dealing life problems skills. He also happen to play us few games for fun . I really enjoyed his session.
 
- after this we had our lunch
+ After this we had our break for 1 hour. In this break i did my lunch and explored the campus with my new friends.
+
+ ### proficiency test
+ After lunch they ended the session by taking our proficiency test in which the invigilators were our seniors they were very helpul about my questions about the test and strict about the cheating. At first we gave the english test and then the maths both the test were easy and after that the day 2 induction program ended and we went home.
 
 
