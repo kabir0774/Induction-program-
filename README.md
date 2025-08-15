@@ -12,4 +12,6 @@ This was the first day of my college life form my side. I was very excited, it s
  Our first lecture of the day was held by DR. Priya Darshini Mam (phd in electronic engineering) she gave us brief lecture on universal human values she taught us about how the main destination of our life is not to be rich or buy some kind of luxury things it is just to be happy and everything else is just a path to reach that destination.
 
  ### Buddy4Study scholarship session
+ For me this part of the day was really important some real nice guys came from a scholarships platform 'buddy4study' they told us about their new satya sholarship program which helps the finacially weak students by giving them upto 100% of scholarship. They helped us to register on the website and taught us how to apply for the scholarship.
  
+
