@@ -13,5 +13,10 @@ This was the first day of my college life form my side. I was very excited, it s
 
  ### Buddy4Study scholarship session
  For me this part of the day was really important some real nice guys came from a scholarships platform 'buddy4study' they told us about their new satya sholarship program which helps the finacially weak students by giving them upto 100% of scholarship. They helped us to register on the website and taught us how to apply for the scholarship.
- 
+
+ ### DR. Arvind Dhingra(Director-STEP & Incharge TAC)
+ After the scholarship session DR. Arvind sir came on stage to tell us some things about personality development and how it helps in our day to day life. he also enlighted us about all the socities and clubs present in the college for students , for their studies and for their commnication ,talking and dealing life problems skills. He also happen to play us few games for fun . I really enjoyed his session.
+
+ after this we had our lunch
+
 
