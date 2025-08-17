@@ -22,4 +22,30 @@ This was the first day of my college life form my side. I was very excited, it s
  ### proficiency test
  After lunch they ended the session by taking our proficiency test in which the invigilators were our seniors they were very helpul about my questions about the test and strict about the cheating. At first we gave the english test and then the maths both the test were easy and after that the day 2 induction program ended and we went home.
 
+  # DAY - 3
+  ## AUGUST 4,2025
+
+ Strarting of day 2 was some kind of similar to day 2 all the students gathered in the auditorium all we all started the session by reciting the mool mantra and make our self calm.
+
+### CAUSMIC CLUB
+After the mool mantra our senior Miss taranpreet kaur and her mates told us about the causmic club. This same club managed the whole induction program. They told us about how this causmic club got formed and how does it work. This club also manages the APEX and ACME. They motivated us to join to join the club and also showed us some reels on thier instagram page it was really fun.
+
+### Universal Human Values
+Then it was time for another lecture on universal human values by DR. Priya Darshini mam , she gave her first lecture on day 2. Today she talked about moral understanding, right understanding, human facility and many more we learned a lot.
+ 
+ she also talked about that your happiness is in your hands not someone elses by giving an example that if somebody does not pick up your phone then its on you whether get angry that he is not picking up my phone because he doesn't want to talk to me or you can think that may be he can't hear the bell or may be he is in some meeting it is on us. With this she ended her lecture . 
+
+ After this we had our lunch break for 1 hour.
+
+### PPS Introduction lecture
+After lunch Mr.Jaswant Singh gave the mechanical department a brief introduction about him and pps. It was kind of my first study lecture. We listned to him very carefully.
+  
+At the end we had our physics lecture but it got cancled so we called it a day and then the day 3 of induction program ended.
+
+# DAY - 4
+## AUGUST 5,2025
+ ### lecture on "Motor Sports"
+Day 4 was a little different then before all the mechani 
+
+
 
