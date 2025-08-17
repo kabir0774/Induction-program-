@@ -45,7 +45,15 @@ At the end we had our physics lecture but it got cancled so we called it a day a
 # DAY - 4
 ## AUGUST 5,2025
  ### lecture on "Motor Sports"
-Day 4 was a little different then before all the mechani 
+Day 4 was a little different then before all the mechanical students gathered in TCC sem hall and thier Mr.Gautam Murria gave an exciting lecture on 'Motor Sports'.
+
+ He intoduced us to the three M of Motor Sports
+
+- **MINDS**
+- **MACHINES**
+- **MILLISECONDS**
+
+Then he gave us some infortion about how F1 like racing sports work what are the key points to remember when we talk about motor sports and as like it is a team sport and this sport pushes the limits of engineering and how it test that how u perform under pressure it was really fascinating i enjoyed it a lot and i am looking forward to join this.   
 
 
 
