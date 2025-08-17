@@ -53,7 +53,23 @@ Day 4 was a little different then before all the mechanical students gathered in
 - **MACHINES**
 - **MILLISECONDS**
 
-Then he gave us some infortion about how F1 like racing sports work what are the key points to remember when we talk about motor sports and as like it is a team sport and this sport pushes the limits of engineering and how it test that how u perform under pressure it was really fascinating i enjoyed it a lot and i am looking forward to join this.   
+Then he gave us some infortion about how F1 like racing sports work what are the key points to remember when we talk about motor sports and as like it is a team sport and this sport pushes the limits of engineering and how it test that how u perform under pressure it was really fascinating i enjoyed it a lot and i am looking forward to participate in thess races.
 
+### Millets Super Food
+Now it was time for the interaction with Mrs.Shaffy Makkar to talk about millets. She describes to us that how millets are important in our lives especially in this modern era where people are diagnosed with so many diseases and like how many have problems like diabetes , joint pain etc.
 
+She told us that these millets are basically medicines for our body and if we eat these in our daily life it can have endless benefits. Then she told us the names of some of the major and minor positive  millets and their benefits,like they are rich in protien , fibers , probiotics , antioxidants etc
 
+#### Major Millets
+- **Pearl Mille (Bajra)**
+- **Sorghum (Jowar)**
+- **Finger Millet (Ragi)**
+
+#### Minor Millets
+- **Foxtail Millets**
+- **Kodo Millet**
+- **Barnyard Millet**
+- **Little Millet**
+- **Proso Millet**
+
+She also talked about how to eat the millets and how to eat the millets like how to cook them and eat only one millet a day and don't mix them while cooking and after that she ended her lecture and that's how day 4 of induction program ended.
