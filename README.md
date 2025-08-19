@@ -73,3 +73,20 @@ She told us that these millets are basically medicines for our body and if we ea
 - **Proso Millet**
 
 She also talked about how to eat the millets and how to eat the millets like how to cook them and eat only one millet a day and don't mix them while cooking and after that she ended her lecture and that's how day 4 of induction program ended.
+
+# DAY - 5
+## AUGUST 19 , 2025
+
+As usual the day started with recitting the mool mantra and mak our self calm and focus.
+
+ ### DEAN STUDENT WELFARE 
+Now it was time for Mr.Parminder Singh9(Dean Student Welfare) to tell us more about the college. He took a short about the facilities given  by the college to students and he talked about the clubs and socities a student can join that are present in college then he ended his session.
+
+### FITNESS FOR ENGINEERS
+Then Mr.Manpreet Singh went on stage and enlighted us on the importance of a healthy body especially for a student who mostly sits all through the day for study and does not do any exercise. He himself has a fantastic physique. He walked us through all the myths and facts about the bodybuilding and fitness industry. He also told us some simple ways by which anyone can be base level healthy like u can do exercise at home like pushups, running,pullups etc. personally i enjoyed his session a lot as i am also a gym goer. then he ended his lecture and decided to leave.
+
+### NCC(National Cadet Corps)
+After Mr.Manpreet Singh left our senior Mr.Tanmay Kaushal took over and talked with us about the NCC. He talked about how the NCC operates in our college, the hierarchy,the ways to join it.He told us about how he joined the NCC and showed us some adventures pics and videos of him participating in campsand other programs over these 2 years.
+
+After all this he invited Brigadier PS Cheema sir. we welcomed him with a big round of applause. then he intracted with us and told us some of his life story ,he also did some shayari and told us the meaning afterwards. Although the lecture was good i enjoyed it and felt motivated . and then it was time for wrapping up the day and that how the day 5 of induction program was. 
+
