@@ -75,7 +75,7 @@ She told us that these millets are basically medicines for our body and if we ea
 She also talked about how to eat the millets and how to eat the millets like how to cook them and eat only one millet a day and don't mix them while cooking and after that she ended her lecture and that's how day 4 of induction program ended.
 
 # DAY - 5
-## AUGUST 19 , 2025
+## AUGUST 06 , 2025
 
 As usual the day started with recitting the mool mantra and mak our self calm and focus.
 
@@ -89,4 +89,15 @@ Then Mr.Manpreet Singh went on stage and enlighted us on the importance of a hea
 After Mr.Manpreet Singh left our senior Mr.Tanmay Kaushal took over and talked with us about the NCC. He talked about how the NCC operates in our college, the hierarchy,the ways to join it.He told us about how he joined the NCC and showed us some adventures pics and videos of him participating in campsand other programs over these 2 years.
 
 After all this he invited Brigadier PS Cheema sir. we welcomed him with a big round of applause. then he intracted with us and told us some of his life story ,he also did some shayari and told us the meaning afterwards. Although the lecture was good i enjoyed it and felt motivated . and then it was time for wrapping up the day and that how the day 5 of induction program was. 
+
+# DAY - 6
+## AUGUST 07 , 2025
+
+### P2P LECTURE
+This was our last day of induction program and it started a little different than usual. All the mechanical students gathered in the classroom and our seniors took our lecture of C++. The lecture went for 1 hour. They told us some basics about C++ and then ended the lecture.
+
+### ENGLISH LECTURE 
+Then we had our english leture by professor Nisha Mam she just took an introduction lecture for us. All of us gave her our brief introduction and then she told us about the subject like syllabus, marking scheme and then she ended her 1 hour lecture.
+
+
 
