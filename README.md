@@ -99,5 +99,9 @@ This was our last day of induction program and it started a little different tha
 ### ENGLISH LECTURE 
 Then we had our english leture by professor Nisha Mam she just took an introduction lecture for us. All of us gave her our brief introduction and then she told us about the subject like syllabus, marking scheme and then she ended her 1 hour lecture.
 
+### CML(Centre for Multifacted Learning)
+After the lectures students of all branches gathered in the auditorium.Where DR.Lakhvir Singh Khana(Incharge CML) interacted with all of us and told us about the CML and how it does the holistic development of the student and organize events and also help students in their academics and helps students to develop skills like learning AI and robotics,helps students by arranging funds for their projects. He also told us about the courses that NPTEL offers by IIT proffesers he guided us to join one those courses and told us about the benefits of these courses.i really enjoyed his session and i am looking forward to join CML.
+
+### NSS(National Service Scheme)
 
 
