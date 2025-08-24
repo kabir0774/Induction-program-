@@ -47,6 +47,8 @@ At the end we had our physics lecture but it got cancled so we called it a day a
 # DAY - 4
 ## AUGUST 5,2025
  ### lecture on "Motor Sports"
+ ![motor sports](https://media.formula1.com/image/upload/t_16by9North/c_lfill,w_3392/q_auto/v1740000000/trackside-images/2024/F1_Grand_Prix_of_United_States/2179833844.webp)
+
 Day 4 was a little different then before all the mechanical students gathered in TCC sem hall and thier Mr.Gautam Murria gave an exciting lecture on 'Motor Sports'.
 
  He intoduced us to the three M of Motor Sports
