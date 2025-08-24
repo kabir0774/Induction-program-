@@ -107,4 +107,9 @@ Now it was time for the last session of induction program DR.Jasvir Singh Grewal
 
 And thats how the induction program ended.
 
+### CONCLUSION
+The induction program at GNDEC was an incredible experience for me. The mission of induction program was to educate students about college,academics and social skills with a lot of fun and i think it has succeeded in it.I have learned a lot from it and looking forward to apply that knowlegde i gained from induction program in my college life .I hope it will help me a lot.It was a perfect way to help the students to start their college.
+
+
+
 
