@@ -91,7 +91,7 @@ After Mr.Manpreet Singh left our senior Mr.Tanmay Kaushal took over and talked w
 After all this he invited Brigadier PS Cheema sir. we welcomed him with a big round of applause. then he intracted with us and told us some of his life story ,he also did some shayari and told us the meaning afterwards. Although the lecture was good i enjoyed it and felt motivated . and then it was time for wrapping up the day and that how the day 5 of induction program was. 
 
 # DAY - 6
-## AUGUST 07 , 2025
+## AUGUST 07 , 2025 (LAST DAY OF INDUCTION PROGRAM)
 
 ### P2P LECTURE
 This was our last day of induction program and it started a little different than usual. All the mechanical students gathered in the classroom and our seniors took our lecture of C++. The lecture went for 1 hour. They told us some basics about C++ and then ended the lecture.
@@ -103,5 +103,8 @@ Then we had our english leture by professor Nisha Mam she just took an introduct
 After the lectures students of all branches gathered in the auditorium.Where DR.Lakhvir Singh Khana(Incharge CML) interacted with all of us and told us about the CML and how it does the holistic development of the student and organize events and also help students in their academics and helps students to develop skills like learning AI and robotics,helps students by arranging funds for their projects. He also told us about the courses that NPTEL offers by IIT proffesers he guided us to join one those courses and told us about the benefits of these courses.i really enjoyed his session and i am looking forward to join CML.
 
 ### NSS(National Service Scheme)
+Now it was time for the last session of induction program DR.Jasvir Singh Grewal took the stage and talked about the NSS.He showed us a video of an island on which birds were dying and the cause of their death was eating plastic thrown by humans all over the island. He told us that how humans are destroying this world and NSS is the organisation trying its best to change the world by doing several kinds of social work. NSS teaches the students about human values and kindness.They set up camps like blood camps , awareness camps etc. After that we all had a little fun,our seniors and also the members of NSS gave a little comedic performance , it was hilarious we enjoyed it a lot and after that they ended the session.
+
+And thats how the induction program ended.
 
 
