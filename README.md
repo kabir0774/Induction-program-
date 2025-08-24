@@ -29,6 +29,7 @@ This was the first day of my college life form my side. I was very excited, it s
  Strarting of day 2 was some kind of similar to day 2 all the students gathered in the auditorium all we all started the session by reciting the mool mantra and make our self calm.
 
 ### CAUSMIC CLUB
+![causmic club](https://lh3.googleusercontent.com/p/AF1QipN6q4IUes2-Jn4VyKlSdp2sGNBxUuB9Df4AnYFv=s1360-w1360-h1020-rw)
 After the mool mantra our senior Miss taranpreet kaur and her mates told us about the causmic club. This same club managed the whole induction program. They told us about how this causmic club got formed and how does it work. This club also manages the APEX and ACME. They motivated us to join to join the club and also showed us some reels on thier instagram page it was really fun.
 
 ### Universal Human Values
